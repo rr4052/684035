@@ -21,4 +21,4 @@
 高清无广告，流畅观影
 观看体验尤为重要，我们精心选择高质量的日本AV资源，并且平台无广告干扰，保证你能流畅观看每一部影片。用户可以在不被广告打扰的环境中，享受纯粹的影片内容。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/rr4052/684035 ）</span>
